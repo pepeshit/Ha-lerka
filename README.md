@@ -1,2 +1,2 @@
 # Ha-lerka
-cukriky
+cukriky pre gayov
